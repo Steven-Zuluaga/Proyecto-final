@@ -1,2 +1,1 @@
-Camilo Zulaga 
-Thomas Suarez
+Camilo Zuluaga y Thomas Suarez
